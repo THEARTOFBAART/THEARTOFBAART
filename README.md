@@ -2,7 +2,7 @@
 - 👀 I’m interested in giving individuals front row experience in authentic retro and vintage t-shirts
 - 🌱 I’m currently learning how to help others to get what they love
 - 💞️ I’m looking to collaborate on getting individuals the most out of what they love to wear
-- 📫 How to reach me Mic baart on Tik Tok
+- 📫 How to reach me Mic baart on Tik Tok, Facebook michael mic baart 
 
 <!---
 THEARTOFBAART/THEARTOFBAART is a ✨ special ✨ repository because its the art of Baart 
